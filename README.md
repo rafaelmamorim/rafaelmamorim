@@ -1,5 +1,5 @@
 # 💫 About Me:
-Husband and father<br>IT Analyst at Federal University of Pampa (Rio Grande do Sul - Brazil)<br>Master of Science in Management. Specialist in IT Governance. Bachelor in Informatics<br>www.rafaelamorim.com.br
+Husband and father<br>IT Analyst at Federal University of Pampa (Rio Grande do Sul - Brazil)<br>Teacher and Professor at Federal Institute of Education, Science and Technology of Rio Grande do Sul (IFSul)<br>Master of Science in Management. Specialist in IT Governance. Bachelor in Informatics<br>www.rafaelamorim.com.br
 
 
 ## 🌐 Socials:
